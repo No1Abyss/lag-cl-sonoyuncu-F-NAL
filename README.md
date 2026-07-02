@@ -1,1 +1,0 @@
-# lag-cl-sonoyuncu-F-NAL
